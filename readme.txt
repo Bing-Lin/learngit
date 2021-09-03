@@ -10,3 +10,7 @@ Could you fine that gey?
 
 
 Achive your dream, getting up.
+
+Today is a nice day, I want you to go outside with me. Willing?
+Yes, of course, it is my presure.
+Go hiking, Biking, working. 
